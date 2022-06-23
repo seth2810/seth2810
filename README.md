@@ -19,7 +19,7 @@
     <br />
     I am constantly improving my skills and rethinking the experience I have gained 🤓.
     <br />
-    I preffer to spend my free time to: 📚, 🏊‍♂️, 🏝 and socializing.
+    I prefer to spend my free time to: 📚, 🏊‍♂️, 🏝 and socializing.
     <br />
     I’m looking to collaborate on interesting projects if you need any help.
 </div>

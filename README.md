@@ -23,9 +23,7 @@
     <br />
     I prefer to spend my free time to: 📚, 🏊‍♂️, 🏝 and socializing.
     <br />
-    I’m looking to collaborate on interesting projects if you need any help.
-    <br />
-    You can contact me at convenient time using following link - https://calendly.com/seth2810.
+    I’m looking to collaborate on interesting projects if you need any help you can contact me at convenient time using following link - https://calendly.com/seth2810.
 </div>
 
 ## 🌐 Socials

@@ -18,10 +18,12 @@
     </samp>
     <br />
     I am constantly improving my skills and rethinking the experience I have gained 🤓.
+    Public interview with me in Russian - https://youtu.be/dl19ouG0pTc.
     <br />
     I prefer to spend my free time to: 📚, 🏊‍♂️, 🏝 and socializing.
     <br />
     I’m looking to collaborate on interesting projects if you need any help.
+    You can contact me at convenient time using following link - https://calendly.com/seth2810.
 </div>
 
 ## 🌐 Socials

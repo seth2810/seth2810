@@ -21,7 +21,7 @@
     <br />
     Public interview with me in Russian - https://youtu.be/dl19ouG0pTc.
     <br />
-    I prefer to spend my free time to: 📚, 🏊‍♂️, 🏝 and socializing.
+    I prefer to spend my free time to: 📚, 🏊‍♂️, 🏝 and networking.
     <br />
     I’m looking to collaborate on interesting projects if you need any help.
     <br />
